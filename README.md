@@ -8,7 +8,7 @@ Can't link my main source, Spotify, which is connected to my irl name so I'll li
 
 The 1900s
 
-Ac/DC
+AC/DC
 
 alt-J
 
